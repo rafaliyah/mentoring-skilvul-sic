@@ -1,1 +1,0 @@
-Haloo, nama aku Rafa
